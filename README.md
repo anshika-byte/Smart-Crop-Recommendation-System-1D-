@@ -1,0 +1,1 @@
+# Smart-Crop-Recommendation-System-1D-
